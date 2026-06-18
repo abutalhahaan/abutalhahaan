@@ -1,6 +1,6 @@
 ### Hi there 👋, my name is Abu Talha 
 #### i am wonner of the Deepafy 
-![i am wonner of the Deepafy ](https://web.facebook.com/photo/?fbid=122105698545194416&set=a.122105698563194416)
+![i am wonner of the Deepafy ]
 
 I am an Entrepreneur and technology-driven digital solution builder.
 
